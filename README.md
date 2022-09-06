@@ -1,4 +1,4 @@
-### Our Mission 
+### Manifesto
 
 ## We’re on a mission to bring more Community professionals into web3.
 
